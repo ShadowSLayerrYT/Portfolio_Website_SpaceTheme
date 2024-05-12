@@ -5,7 +5,7 @@
 
 ## 🌠 About Me:
 
-I'm a Gaming enthusiast 🛸, coding wiz🧙‍♂️, and design aficionado 🎨, on a mission to explore the far reaches of creativity. From crafting captivating websites to mastering the art of interstellar design, I bring the cosmos to your screen!
+I'm a Gaming enthusiast 🛸, coding wiz🧙‍♂️, and design aficionado 🎨, on a mission to explore the far reaches of creativity. From crafting captivating websites to mastering the art of interstellar design, I bring the cosmos to your screen.
 
 ## 🌌 Portfolio Highlights:
 
